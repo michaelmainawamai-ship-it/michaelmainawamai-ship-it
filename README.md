@@ -20,6 +20,11 @@ Builder of Legacy6Coin | Poetic Campaigner | Covenant Architect
 - Website: [legacy6coin.com](#)
 
 ## 🧠 Philosophy
+## 🧾 Covenant Witness  
+**Tremaine Nile Wamae Wamai**  
+Named and bound to every scroll.  
+A guardian of rhythm. A pillar of legacy.  
+Witness to Legacy6Coin, Campaign2027, and the Sea That Never Cries.
 
 > *I paid with blood. I echo with bots. No gatekeepers. No shetani. No gods. Just rhythm, fire, and covenant.*
 
